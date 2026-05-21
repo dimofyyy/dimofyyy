@@ -1,8 +1,8 @@
-**may return to ponytown permanently!**
+**c+h is highly encouraged! thank u 4 sitting with me :)**
 
 the name $\color{blue}{\text{Rot}}$ is for my close friends only! please call me $\color{blue}{\text{Elliot}}$.
 
-### [YARROW](https://github.com/MUTINY-DUOO) $\color{purple}{\text{<- the loonac to my dimofyy (FOLLOW THEM NOWWWWW!)}}$
+### [YARROW](https://github.com/looonac) $\color{purple}{\text{<- the loonac to my dimofyy (FOLLOW THEM NOWWWWW!)}}$
 # $\color{orange}{\text{THE DIMOFYY FAN!!!}}$
 <img width="498" height="281" alt="loonac-dimofyy" src="https://github.com/user-attachments/assets/a917c2fe-fcf0-4f75-bbfe-d2f2a6525208" />
 
