@@ -8,7 +8,7 @@
 
 ## $\color{orange}{\text{THE NUMBER 1 DIMOFYY FAN!!! CG 100K KING!!}}$
 
-### sign my [ATABOOK](https://therotc0nsumes.atabook.org/) - strawpage coming soon..
+### sign my [ATABOOK](https://dimofyyy.atabook.org/) - strawpage coming soon..
  
 
 <img width="498" height="281" alt="loonac-dimofyy" src="https://github.com/user-attachments/assets/a917c2fe-fcf0-4f75-bbfe-d2f2a6525208" />
