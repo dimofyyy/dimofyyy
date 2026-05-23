@@ -4,9 +4,12 @@
 
 ## $\color{orange}{\text{c+h is highly encouraged, even if i'm with friends! thank u 4 sitting with me}}$
 
-### [looonac](https://github.com/looonac) $\color{yellow}{\text{<- the loonac to my dimofyy, give them a follow!}}$
+## MY $\color{darkred}{\text{BARRIER}}$ TRIO!
 
-## $\color{orange}{\text{THE NUMBER 1 DIMOFYY FAN!!! CG 100K KING!!}}$
+### [looonac](https://github.com/looonac) $\color{cyan}{\text{<- the loonac to my dimofyy}}$
+### [cheron](https://github.com/RADIANT-DAY) $\color{navy}{\text{<- the nufuli to my dimofyy}}$
+
+## $\color{orange}{\text{THE NUMBER 1 DIMOFYY FAN!!! CG ON 100K KING!!}}$
 
 ### sign my [ATABOOK](https://dimofyyy.atabook.org/) - strawpage coming soon..
  
