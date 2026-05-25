@@ -7,7 +7,7 @@
 ## MY $\color{darkred}{\text{BARRIER}}$ TRIO!
 
 ### [looonac](https://github.com/looonac) $\color{cyan}{\text{<- the loonac to my dimofyy}}$
-### [cheron](https://github.com/RADIANT-DAY) $\color{navy}{\text{<- the nufuli to my dimofyy}}$
+### [cheron](https://github.com/RADIANT-DAY) $\color{blue}{\text{<- the nufuli to my dimofyy}}$
 
 ## $\color{orange}{\text{THE NUMBER 1 DIMOFYY FAN!!! CG ON 100K KING!!}}$
 
