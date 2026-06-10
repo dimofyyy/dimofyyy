@@ -3,7 +3,7 @@
 </p>
 <div align="center">
 
-  [ART CREDITS](https://x.com/27yen_/status/2061772931005575541?s=20)
+  [ART CREDITS](https://x.com/27yen_?s=20)
 </div>
 
 <div align="center">
