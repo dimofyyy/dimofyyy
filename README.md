@@ -1,6 +1,11 @@
 <p align="center">
-  PLACEHOLDER THIS WILL CHANGE.. A LOT! 😓
+PLACEHOLDER! LAYOUT WILL CHANGE.. ALOT! 😓
 </p>
+  
+<div align="center">
+ 
+  [TITLE-TOWN](https://github.com/title-town)
+</div>
 <div align="center">
 
   [ART CREDITS](https://x.com/27yen_?s=20)
