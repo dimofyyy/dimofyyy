@@ -1,10 +1,14 @@
+<div align="center">
+
+[![Hits](https://hits.sh/github.com/piehiker.svg?style=plastic&label=%E2%8B%86.%E0%B3%83%E0%BF%94*%3A%EF%BD%A5&extraCount=1000&color=8a6b5b&labelColor=603a26)](https://hits.sh/github.com/piehiker/)
+
 <p align="center">
 PLACEHOLDER! LAYOUT WILL CHANGE.. ALOT! 😓
 </p>
   
 <div align="center">
  
-  [TITLE-TOWN](https://github.com/title-town)
+ponytowns  [naparizel](https://github.com/title-town)
 </div>
 <div align="center">
 
@@ -29,7 +33,3 @@ $\color{wheat}{\text{" a pariah gone awry,}}$
 $\color{blue}{\text{just come find me! „}}$
 </p>
 
-<div align="center">
-
-[![Hits](https://hits.sh/github.com/piehiker.svg?style=flat-square&label=%E2%80%A7%E2%82%8A%CB%9A%20%F0%9F%8D%AA%20%E2%8B%85%20%E2%98%86&extraCount=663&color=5e3e2d&labelColor=5e3e2d)](https://hits.sh/github.com/piehiker/)
-</div>
