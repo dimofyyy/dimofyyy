@@ -1,6 +1,3 @@
-<div align="center">
-
-[![Hits](https://hits.sh/github.com/piehiker.svg?style=plastic&label=%E2%8B%86.%E0%B3%83%E0%BF%94*%3A%EF%BD%A5&extraCount=1000&color=8a6b5b&labelColor=603a26)](https://hits.sh/github.com/piehiker/)
 
 <p align="center">
 PLACEHOLDER! LAYOUT WILL CHANGE.. ALOT! 😓
