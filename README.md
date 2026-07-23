@@ -1,6 +1,6 @@
 
 <p align="center">
-PLACEHOLDER! LAYOUT WILL CHANGE.. ALOT! 😓
+mini ponytown hiatus until my pc cools down sorry oomfs
 </p>
   
 <div align="center">
